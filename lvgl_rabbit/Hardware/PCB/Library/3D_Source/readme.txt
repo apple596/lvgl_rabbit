@@ -1,0 +1,2 @@
+请使用SolidWork打开
+作者的软件版本是SolidWorks 2012
